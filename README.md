@@ -10,11 +10,3 @@ Brazileiro👏
 📌Instagram:@atilon.dev
 📌Yotuber:techtutorzone
 ----(58-incritos)------
-
-+++++++           +++++++
-
-    -             -
-     -           -
-      -        -
-        -     -
-           ~
